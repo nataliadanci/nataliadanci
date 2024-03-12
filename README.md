@@ -3,7 +3,7 @@
 
 
 
-- 👨‍💻 I’m currently learning **Economics and Computer Science**
+- 👨‍💻 I’m currently studying **Economics and Computer Science**
 
 - 📫 How to reach me **nataliadanci0@gmail.com**
 
