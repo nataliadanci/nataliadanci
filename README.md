@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nataliadanci0@gmail.com**
 
-- 📄 Know about my experiences [CV](https://drive.google.com/file/d/1Pe88hw-5faKs3h_nrjZYEbqDHOaL7TpR/view?usp=sharing)
+- 📄 [Know about my experiences](https://drive.google.com/file/d/1Pe88hw-5faKs3h_nrjZYEbqDHOaL7TpR/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
